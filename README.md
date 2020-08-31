@@ -3,7 +3,7 @@
 Jordan Marley Ross
 
 1. What is your prefered email address
-Jjmross4@miners.utep.edu
+jmross4@miners.utep.edu
 
 1. What are your prefered pronouns?
 He is my preferred pronoun
